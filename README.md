@@ -1,0 +1,1 @@
+# burq-social-assets
